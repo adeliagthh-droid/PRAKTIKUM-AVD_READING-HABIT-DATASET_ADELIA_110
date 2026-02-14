@@ -1,0 +1,2 @@
+# PRAKTIKUM-AVD_READING-HABIT-DATASET_ADELIA_110
+Adelia Githa Naveezha Hermawan - 250916110 Sistem Informasi C'2025
